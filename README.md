@@ -2,7 +2,6 @@
 Mass Report an Instagram Account
 
 
-Join the Discord for more information (https://discord.gg/8WyFZF3kqn)
 
 
 
